@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working as Assistant Teacher 
+I'm a Assistant Teacher 
 
 
 # 💻 Tech Stack:
